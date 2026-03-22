@@ -1,1 +1,1 @@
-View in 1080p
+Recommended to view in 1080p
